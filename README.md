@@ -1,1 +1,0 @@
-# linta-manga-atual-
